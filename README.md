@@ -1,0 +1,1 @@
+O curso até agora tem sido bastante intuitivo. Professor utiliza de uma forma clara e facil para o ensinamento da ferramenta.
